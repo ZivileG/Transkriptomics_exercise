@@ -1,1 +1,0 @@
-# Transkriptomics_exercise
